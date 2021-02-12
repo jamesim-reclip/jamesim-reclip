@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jamesim-reclip
+- 👀 I’m interested in Reclip
+- 🌱 I’m currently learning Reclip
+- 💞️ I’m looking to collaborate on Reclip
+- 📫 How to reach me Reclip
